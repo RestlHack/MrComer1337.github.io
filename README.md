@@ -1,2 +1,1 @@
-# MrComer1337.github.io
-Info
+# Если вы видите это, сообщите об этом мне - https://vk.com/mr_comer
